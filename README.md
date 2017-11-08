@@ -36,6 +36,7 @@ Cooking Procedures :
 
 
 Munggo Guisado Recipe
+
 Munggo Guisado is one of my favorite filipino food dishes. It has an inexpensive ingredients and lots of nutrients. Way back in the Philippines, I usually use ampalaya leaves for its green veggies but uses spinach as a substitute here in Canada.
 In our family, I cook a variety of Filipino food dish in our table every week. My simple desire is to let my growing children love the taste of filipino dishes and a healthy one.
  
@@ -148,3 +149,125 @@ Preheat grill over medium heat.
 Grill and baste pork until well cooked.
 Transfer to a serving platter. Serve with your favorite sauce. Enjoy!
 
+
+Beef Steak
+
+Ingredients :
+
+1/2 lb. beef sirloin (or beef tenderloin steaks), cut into thin strips
+2 tbsp. calamansi concentrate
+2 tbsp. soy sauce
+1 tsp. salt
+1 tsp. pepper
+3 tbsp. oil
+1 onion, cut into rings
+(Cooking Measurements )
+
+Cooking Procedures :
+1. Slice beef across the grain. Cut into 2 inches length.
+2. Marinate meat in calamansi, soy sauce, salt and pepper (by smelling the aroma of the marinated beef, you’ll know it is well seasoned or not; adjust or correct the seasoning according to your style and liking). Refrigerate for 30 minutes.
+3. Pan fry onion rings in hot oil. Cook until onions are soft and translucent. Set aside.
+4. In the same pan, stir-fry beef until cooked and tender. Transfer to a serving platter. Garnish with onion rings and serve.
+
+
+Filipino Chicken Curry Recipe
+Chicken Curry
+This chicken curry recipe is made in Filipino style of cooking. This curry recipe is one of the filipino dish that we usually prepare in every birthdays and parties when we were still in the Philippines. And now, that we’re here in Canada, this chicken dish is still one of our favorites during special occasions or even just in our common meals because my family loves it. They said that when they start eating this chicken curry, you’ll feel a little burning sensation in their mouth and wow really spicy delicious.
+Ingredients :
+
+ 
+2-3 tbsp. oil
+3 potatoes, peeled, quartered and fried
+1 lb. chicken, cut into serving pieces
+3 cloves garlic, minced
+1 large onion, quartered
+1 tbsp. patis (fish sauce)
+3 tbsp. curry powder
+salt and pepper
+1 cup water
+1 red bell pepper, cut into big squares
+1 green bell pepper, cut into big squares
+3 celery stalks, cut into 1-1/2” long
+1 cup coconut milk or evaporated milk
+
+Cooking Procedures :
+1. Pan fry potatoes. Set aside.
+2. In the same pan, fry chicken pieces and brown a little.
+3. Add garlic and onion. Sauté for a few minutes until soft.
+4. Pour in patis and season with curry powder, salt and pepper. Stir for 2 minutes.
+5. Add water. Cover and bring to a boil. Lower the heat; add celery, bell peppers and fried potatoes. Simmer for 3 minutes or until half done.
+6. Add milk and stir occasionally. Cook for another 7 minutes (or lesser when using evaporated milk because the liquids will curled).
+7. Remove from heat. Serve hot.
+
+Chili Con Carne I
+
+Ingredients :
+
+1 lb. ground beef
+1 onion, chopped
+1 green or red bell pepper, diced
+1 can tomato sauce
+1 bay leaf
+1 tbsp. chili powder
+1 (398 mL) can pork and beans
+salt and pepper, to taste
+(Cooking Conversions)
+
+Cooking Procedures :
+1. Brown beef in a pan over medium heat for about 4 to 6 minutes. Drain excess fat.
+2. Add onion and green (or red, if using) pepper. Stir-fry for 2 minutes.
+3. Pour in tomato sauce, add bay leaf and chili powder. Season with salt and pepper. Stir to blend well and simmer for a few minutes.
+4. Add pork and beans. Mix well and cook for 5 minutes. Correct seasonings.
+5. Remove from heat. Transfer to a serving dish. Serve hot.
+
+
+Chili Con Carne II
+
+Ingredients :
+
+1 cup uncooked kidney beans
+3 cups water (or 1 can red kidney beans, optional)
+1 lb. ground beef
+1 tbsp. crushed garlic
+1 cup chopped onion
+1 cup chopped tomatoes
+1 cup sliced celery
+2 to 3 tbsp. chili powder
+1 tsp. oregano
+1 tsp. cumin
+2 tsp. salt
+2 tbsp. sugar
+2 tbsp. liquid seasoning
+1 tsp. hot sauce
+1/2 cup bacon, fried and crumbled, for garnishing
+
+Cooking Procedures :
+1. Boil kidney beans in water. Remove from heat. Cover and let stand for an hour. Again, boil the beans and then reduce heat and simmer until they are tender. Set aside. Alternatively, use canned of red kidney beans (or any kind of canned kidney beans according to your liking).
+2. In a skillet, brown beef for about 4 to 6 minutes over medium heat. Drain excess fat. Add garlic, onion and tomatoes. Stir-fry until soft and wilted.
+3. Add celery and spices. Stir for a while until well blended. Heat to boiling and then reduce heat, cover and simmer for 30 minutes or until done.
+4. Stir in boiled beans (or canned, if using). Correct seasonings. Boil and simmer uncovered for 10 minutes until the chili thickens.
+5. Remove from heat. Transfer to a serving dish. Garnish with crumbled bacon on top and serve.
+
+
+Asadong Manok (Tangy Chicken Stew)
+
+Ingredients :
+
+2 lb. chicken, cut into serving pieces
+1/4 cup vinegar
+3 cloves garlic, minced
+2 tsp. salt
+1/4 tsp. pepper
+1 onion, sliced
+1 tomatoes, sliced
+1/2 tbsp. paprika
+1 bay leaf
+1 cup water
+vegetable oil
+
+Cooking Procedures :
+1. Combine chicken, vinegar, garlic, salt and pepper in a large bowl. Let stand for at least 30 minutes.
+2. Heat oil in a skillet over medium heat. Sauté onions and tomatoes until soft and wilted. Drain chicken reserving marinade. Add chicken pieces to the pan. Stir-fry for about 4 to 6 minutes or until chicken colors slightly.
+3. Add marinade, paprika, bay leaf and water. Bring to a boil.
+4. Reduce heat and let it simmer for 30 minutes or until chicken is tender. Correct seasonings.
+5. Remove from heat. Transfer to a serving dish and serve.
