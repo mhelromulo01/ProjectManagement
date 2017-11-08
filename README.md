@@ -4,7 +4,7 @@ Mhelfren C. Romulo
 Allen Jake Damasen
 Jeannelyn B. Cabansag
 
-Nilagang Baboy (Boiled Pork with Vegetables)
+1. Nilagang Baboy (Boiled Pork with Vegetables)
 
 My family loves nilaga like this nilagang baboy. This type of recipe are soupy kind of food dish and if we have this recipe on our table, my kids quickly finish their meal and ready to go to their next activity, which is playing. I remember back then that we used to have this dish (we call it nilat-an in our bisayan dialect) during Sunday’s lunch together with my in-laws every weekend.
 Anyways, Nilaga in filipino means ‘boiled’ and one of them is this Nilagang Baboy which is another filipino recipe that is easy to make that you just throw everything in the pot and let it cook until tender. Aside from pork, you can use beef, shrimp or any kind you like and just add any vegetables of your choice.
@@ -35,7 +35,7 @@ Cooking Procedures :
 7. Remove from heat. Serve hot.
 
 
-Munggo Guisado Recipe
+2. Munggo Guisado Recipe
 
 Munggo Guisado is one of my favorite filipino food dishes. It has an inexpensive ingredients and lots of nutrients. Way back in the Philippines, I usually use ampalaya leaves for its green veggies but uses spinach as a substitute here in Canada.
 In our family, I cook a variety of Filipino food dish in our table every week. My simple desire is to let my growing children love the taste of filipino dishes and a healthy one.
@@ -65,7 +65,7 @@ Cooking Procedures :
 7. Add ampalaya leaves or substitute. Cover and remove from heat. Serve hot.
 
 
-Crispy Pata (Deep-Fried Pork Leg)
+3. Crispy Pata (Deep-Fried Pork Leg)
 
 Ingredients :
 
@@ -92,7 +92,7 @@ Cooking Procedures :
 10. Make sauce by combining soy sauce and white vinegar. You may add garlic, onion and chili pepper. Depends to your liking. Enjoy your crispy pata. !
 
 
-Pork Chop Suey
+4. Pork Chop Suey
 
 In the Philippines when we go to SM-Mall with my husband, We usually order chop suey whenever we have our dinner in a restaurant. My hubby loves vegetable dishes and I learn from him to like the taste of vegetable dishes. Well, this Pork Chopsuey is a Chinese dish that primarily compose of mixed vegetable with meat like fish, chicken, shrimp, beef and pork, plus an added extra flavor to complete the Filipino adapted recipe.
 This Chopsuey recipe is one of the common dish that my Filipino family ate during meal time. We all love it.
@@ -126,7 +126,7 @@ Cooking Procedures :
 5. Immediately remove from heat after heated through. Transfer to a serving platter. Serve hot the chop suey dish.
 
 
-Pork Barbecue II
+5. Pork Barbecue II
 
 Ingredients :
  
@@ -150,7 +150,7 @@ Grill and baste pork until well cooked.
 Transfer to a serving platter. Serve with your favorite sauce. Enjoy!
 
 
-Beef Steak
+6. Beef Steak
 
 Ingredients :
 
@@ -170,8 +170,8 @@ Cooking Procedures :
 4. In the same pan, stir-fry beef until cooked and tender. Transfer to a serving platter. Garnish with onion rings and serve.
 
 
-Filipino Chicken Curry Recipe
-Chicken Curry
+7. Filipino Chicken Curry Recipe
+
 This chicken curry recipe is made in Filipino style of cooking. This curry recipe is one of the filipino dish that we usually prepare in every birthdays and parties when we were still in the Philippines. And now, that we’re here in Canada, this chicken dish is still one of our favorites during special occasions or even just in our common meals because my family loves it. They said that when they start eating this chicken curry, you’ll feel a little burning sensation in their mouth and wow really spicy delicious.
 Ingredients :
 
@@ -199,7 +199,7 @@ Cooking Procedures :
 6. Add milk and stir occasionally. Cook for another 7 minutes (or lesser when using evaporated milk because the liquids will curled).
 7. Remove from heat. Serve hot.
 
-Chili Con Carne I
+8. Chili Con Carne I
 
 Ingredients :
 
@@ -221,7 +221,7 @@ Cooking Procedures :
 5. Remove from heat. Transfer to a serving dish. Serve hot.
 
 
-Chili Con Carne II
+9. Chili Con Carne II
 
 Ingredients :
 
@@ -249,7 +249,7 @@ Cooking Procedures :
 5. Remove from heat. Transfer to a serving dish. Garnish with crumbled bacon on top and serve.
 
 
-Asadong Manok (Tangy Chicken Stew)
+10. Asadong Manok (Tangy Chicken Stew)
 
 Ingredients :
 
@@ -271,3 +271,162 @@ Cooking Procedures :
 3. Add marinade, paprika, bay leaf and water. Bring to a boil.
 4. Reduce heat and let it simmer for 30 minutes or until chicken is tender. Correct seasonings.
 5. Remove from heat. Transfer to a serving dish and serve.
+
+11. Chicken Caldereta
+
+PREP TIME
+20 mins
+COOK TIME
+50 mins
+TOTAL TIME
+1 hour 10 mins
+ 
+Yield: 4 to 6 Servings
+
+Ingredients:
+
+1 (3 pounds) whole chicken, cut into serving parts
+½ cup pineapple juice
+¼ cup soy sauce
+salt and pepper to taste
+¼ cup oil
+2 medium potatoes, peeled and quartered
+1 large carrot, peeled and cut diagonally in a bias into ½-inch thick
+1 small green bell pepper, cored, seeded and cut into 2-inch cubes
+1 small red bell pepper, cored, seeded and cut into 2-inch cubes
+1 small onion, peeled and chopped
+3 cloves garlic, peeled and minced
+2 to 3 Thai chili peppers, ends trimmed and minced
+2 cups tomato sauce
+1-1/2 cups water
+½ cup liver spread
+¼ cup green olives
+½ cup Velveeta cheese (or any quickmelt variety), shredded
+
+Cooking Procedures :
+1.	In a large bowl, combine chicken, pineapple juice, soy sauce and salt and pepper to taste. Marinate chicken for about 30 minutes. Drain very well, reserving liquid.
+2.	In wide pan over medium heat, heat oil. Add potatoes and cook for about 3 to 5 minutes or until lightly browned. Remove from pan and drain on paper towels. Add carrots and cook for about 2 to 4 minutes or until lightly browned. Remove from pan and drain on paper towels. Add bell peppers and cook, stirring regularly, for about 30 seconds. Remove from pan and drain on paper towels.
+3.	In the pan, add chicken and fry until lightly browned. Remove from pan and drain on paper towels. Discard excess oil from pan, leaving about 2 tablespoons. Add onions and garlic and cook until limp. Add chili peppers and cook for about 30 seconds.
+4.	Add tomato sauce, water and reserved marinade. Bring to a boil.
+5.	Add chicken and olives. Lower heat, cover and continue to cook for about 25 to 30 minutes or until chicken is cooked through. Add potatoes and carrots and cook until tender. Add liver spread and stir until well blended. Add cheese and stir until melted. Season with salt and pepper. Add bell peppers. Continue to cook for about 2 to 3 minutes or until sauce is thickened. Serve hot.
+
+
+12. Garlic Butter Shrimp
+
+YIELD: 4 SERVINGS
+PREP TIME: 10 MINUTES
+COOK TIME: 10 MINUTES
+TOTAL TIME: 20 MINUTES
+
+Ingredients :
+8 tablespoons (1 stick) unsalted butter, divided
+1 1/2 pounds medium shrimp, peeled and deveined
+Kosher salt and freshly ground black pepper, to taste
+5 cloves garlic, minced
+1/4 cup chicken stock
+Juice of 1 lemon, or more, to taste
+2 tablespoons chopped fresh parsley leaves
+
+Cooking Procedures :
+
+1.	Melt 2 tablespoons butter in a large skillet over medium high heat.
+2.	Add shrimp, salt and pepper, to taste. Cook, stirring occasionally, until pink, about 2-3 minutes; set aside.
+3.	Add garlic to the skillet, and cook, stirring frequently, until fragrant, about 1 minute. Stir in chicken stock and lemon juice.   Bring to a boil; reduce heat and simmer until reduced by half, about 1-2 minutes. Stir in remaining 6 tablespoons butter, 1 tablespoon at a time, until melted and smooth.
+4.	Stir in shrimp and gently toss to combine.
+5.	Serve immediately, garnished with parsley leaves, if desired.
+
+13. Spanish Meatball & Butter Bean Stew
+PREP: 15 MINS
+COOK: 35 MINS
+
+Ingredients :
+
+350g lean pork mince
+2 tsp olive oil
+1 large red onion, chopped
+2 peppers
+, sliced, any colour will do
+3 garlic cloves, crushed
+1 tbsp sweet smoked paprika
+2 x 400g cans chopped tomatoes
+400g can butter beans, drained
+2 tsp golden caster sugar
+small bunch parsley
+, chopped
+crusty bread, to serve (optional)
+
+Cooking Procedures:
+
+1. Season the pork, working the seasoning in with your hands, then shape into small meatballs. Heat the oil in a large pan, add the meatballs and cook for 5 mins, until golden brown all over. Push to one side of the pan and add the onion and peppers. Cook for a further 5 mins, stirring now and then, until the veg has softened, then stir in the garlic and paprika. Stir everything around in the pan for 1 min, then add the tomatoes. Cover with a lid and simmer for 10 mins.
+2. Uncover, stir in the beans, the sugar and some seasoning, then simmer for a further 10 mins, uncovered. Just before serving, stir in the parsley. Serve with crusty bread for dunking, if you like.
+
+14. Ham & Cheese Croquetas
+
+PREP: 20 MINS
+COOK: 1 HR, 25 MINS
+
+Ingredients :
+
+25g butter
+½ small onion
+, finely chopped
+50g plain flour
+250ml milk
+140g sliced smoked ham, diced
+50g mature cheddar, coarsely grated
+50g Gruyère
+, finely grated
+1 tsp Dijon mustard
+2 tbsp double cream
+For the coating
+2 large eggs
+50g plain flour
+140g fine dried breadcrumbs
+sunflower oil, for deep frying
+For the tomato chilli jam
+300g ripe tomatoes
+, roughly chopped
+1 long red chilli, finely chopped (deseeded if you don't like it too hot)
+1 small red onion, finely chopped
+4 large garlic cloves, crushed
+100g demerara sugar
+100ml red wine vinegar
+
+Cooking Procedures:
+
+1. To make the croquetas, melt the butter in a medium saucepan and gently fry the onion for 3 mins or until lightly coloured. Stir in the flour and cook for 30 secs. Gradually add the milk, stirring constantly, and cook over a low heat for 5 mins until thick and glossy. Stir in the ham, cheese, mustard and cream, and season to taste. Cook for 1 min more until the cheese melts, stirring constantly.
+2. Pour into a bowl and cover the surface with cling film to stop a skin forming. Leave to cool, then chill for 4 hrs or overnight - the mixture needs to be very stiff to form the croquetas. Take heaped teaspoons of the mixture and, with wet hands, roll into 24 small oval shapes and put on a tray. Beat the eggs in a shallow bowl, put the flour on a plate and half of the breadcrumbs in a bowl.
+3. Roll each of the croquetas lightly in flour, then in egg before coating in breadcrumbs. Place on a baking tray lined with baking parchment. Use the remaining breadcrumbs to top up the bowl halfway through the coating process. Chill for 30 mins (or to freeze, see tip, below left).
+4. Meanwhile, make the tomato chilli jam. Put all the ingredients in a large saucepan and bring to a gentle simmer. Cover loosely with a lit and cook for 50 mins - 1 hr, stirring occasionally, until thick and glossy. Leave to cool before serving.
+5.Fill a large saucepan one-third full with the sunflower oil and heat to 180C (or heat the oil in an electric deep-fat fryer). Do not overheat and do not leave hot oil unattended. Using a metal slotted spoon, lower 6 croquets into the oil and cook for 1.5 mins or until golden brown. Transfer to a baking tray lined with kitchen paper to absorb excess oil, and continue cooking the rest. Serve with the chilli jam for dipping.
+
+15. Sweet and Sour Chicken
+
+Ingedients:
+
+1 lb. (454 g) boneless skinless chicken breasts, cut into 1 in. (2.5 cm) cubes
+1 egg whites
+2 tbsp. (25 mL) all-purpose flour
+2 tbsp. (25 mL) cornstarch
+1/4 tsp. (1 mL) salt
+1/4 tsp. (1 mL) white pepper (or black pepper)
+1/3 cup (75 mL) vegetable oil
+1/3 cup (75 mL) sodium-reduced chicken broth
+1 tbsp. (15 mL) sodium-reduced soy sauce
+1 tbsp. (15 mL) dry sherry, (optional)
+1 tbsp. (15 mL) rice vinegar (unseasoned)
+3 tbsp. (45 mL) ketchup
+1 tsp. (5 mL) granulated sugar
+2 tsp. (10 mL) minced gingerroot
+1 onions, cut into cubes
+1 sweet red peppers, cut into cubes
+1 sweet green pepper, cut into cubes
+1 can (250 mL) pineapple chunks, drained
+
+Cooking Procedures:
+
+1. In a bowl, combine chicken, egg white, flour, cornstarch, salt and pepper. Let stand for 10 minutes.
+2. In a wok (or large skillet), heat oil over medium-high heat. Stir-fry chicken in batches (reserving cornstarch mixture in bowl), for 3 minutes or until golden-brown. Transfer to a plate.
+4. Using the same bowl use to marinate chicken (cornstarch mixture still in bowl), add broth, 1/3 cup (75 mL) water, soy sauce, sherry (if using), rice vinegar, ketchup, sugar, and ginger. Whisk to combine. Set aside.
+5. Discard all but 1 tbsp (15 mL) oil from wok. Stir-fry onion and red and green peppers for about 3 minutes or until tender-crisp.
+6.Add chicken, pineapple and stock mixture to wok. Stir-fry for 2 to 3 minutes or until thickened and chicken is coated.
