@@ -4,7 +4,7 @@ Mhelfren C. Romulo
 Allen Jake Damasen
 Jeannelyn B. Cabansag
 
-1. Nilagang Baboy (Boiled Pork with Vegetables)
+A.) Nilagang Baboy (Boiled Pork with Vegetables)
 
 My family loves nilaga like this nilagang baboy. This type of recipe are soupy kind of food dish and if we have this recipe on our table, my kids quickly finish their meal and ready to go to their next activity, which is playing. I remember back then that we used to have this dish (we call it nilat-an in our bisayan dialect) during Sunday’s lunch together with my in-laws every weekend.
 Anyways, Nilaga in filipino means ‘boiled’ and one of them is this Nilagang Baboy which is another filipino recipe that is easy to make that you just throw everything in the pot and let it cook until tender. Aside from pork, you can use beef, shrimp or any kind you like and just add any vegetables of your choice.
@@ -35,7 +35,7 @@ Cooking Procedures :
 7. Remove from heat. Serve hot.
 
 
-2. Munggo Guisado Recipe
+B.) Munggo Guisado Recipe
 
 Munggo Guisado is one of my favorite filipino food dishes. It has an inexpensive ingredients and lots of nutrients. Way back in the Philippines, I usually use ampalaya leaves for its green veggies but uses spinach as a substitute here in Canada.
 In our family, I cook a variety of Filipino food dish in our table every week. My simple desire is to let my growing children love the taste of filipino dishes and a healthy one.
@@ -65,7 +65,7 @@ Cooking Procedures :
 7. Add ampalaya leaves or substitute. Cover and remove from heat. Serve hot.
 
 
-3. Crispy Pata (Deep-Fried Pork Leg)
+C.) Crispy Pata (Deep-Fried Pork Leg)
 
 Ingredients :
 
@@ -92,7 +92,7 @@ Cooking Procedures :
 10. Make sauce by combining soy sauce and white vinegar. You may add garlic, onion and chili pepper. Depends to your liking. Enjoy your crispy pata. !
 
 
-4. Pork Chop Suey
+D.) Pork Chop Suey
 
 In the Philippines when we go to SM-Mall with my husband, We usually order chop suey whenever we have our dinner in a restaurant. My hubby loves vegetable dishes and I learn from him to like the taste of vegetable dishes. Well, this Pork Chopsuey is a Chinese dish that primarily compose of mixed vegetable with meat like fish, chicken, shrimp, beef and pork, plus an added extra flavor to complete the Filipino adapted recipe.
 This Chopsuey recipe is one of the common dish that my Filipino family ate during meal time. We all love it.
@@ -126,7 +126,7 @@ Cooking Procedures :
 5. Immediately remove from heat after heated through. Transfer to a serving platter. Serve hot the chop suey dish.
 
 
-5. Pork Barbecue II
+E.) Pork Barbecue II
 
 Ingredients :
  
@@ -150,7 +150,7 @@ Grill and baste pork until well cooked.
 Transfer to a serving platter. Serve with your favorite sauce. Enjoy!
 
 
-6. Beef Steak
+F.) Beef Steak
 
 Ingredients :
 
@@ -170,7 +170,7 @@ Cooking Procedures :
 4. In the same pan, stir-fry beef until cooked and tender. Transfer to a serving platter. Garnish with onion rings and serve.
 
 
-7. Filipino Chicken Curry Recipe
+G.) Filipino Chicken Curry Recipe
 
 This chicken curry recipe is made in Filipino style of cooking. This curry recipe is one of the filipino dish that we usually prepare in every birthdays and parties when we were still in the Philippines. And now, that we’re here in Canada, this chicken dish is still one of our favorites during special occasions or even just in our common meals because my family loves it. They said that when they start eating this chicken curry, you’ll feel a little burning sensation in their mouth and wow really spicy delicious.
 Ingredients :
@@ -199,7 +199,7 @@ Cooking Procedures :
 6. Add milk and stir occasionally. Cook for another 7 minutes (or lesser when using evaporated milk because the liquids will curled).
 7. Remove from heat. Serve hot.
 
-8. Chili Con Carne I
+H.) Chili Con Carne I
 
 Ingredients :
 
@@ -221,7 +221,7 @@ Cooking Procedures :
 5. Remove from heat. Transfer to a serving dish. Serve hot.
 
 
-9. Chili Con Carne II
+I.) Chili Con Carne II
 
 Ingredients :
 
@@ -249,7 +249,7 @@ Cooking Procedures :
 5. Remove from heat. Transfer to a serving dish. Garnish with crumbled bacon on top and serve.
 
 
-10. Asadong Manok (Tangy Chicken Stew)
+J.) Asadong Manok (Tangy Chicken Stew)
 
 Ingredients :
 
@@ -272,7 +272,7 @@ Cooking Procedures :
 4. Reduce heat and let it simmer for 30 minutes or until chicken is tender. Correct seasonings.
 5. Remove from heat. Transfer to a serving dish and serve.
 
-11. Chicken Caldereta
+K.) Chicken Caldereta
 
 PREP TIME
 20 mins
@@ -311,7 +311,7 @@ Cooking Procedures :
 5.	Add chicken and olives. Lower heat, cover and continue to cook for about 25 to 30 minutes or until chicken is cooked through. Add potatoes and carrots and cook until tender. Add liver spread and stir until well blended. Add cheese and stir until melted. Season with salt and pepper. Add bell peppers. Continue to cook for about 2 to 3 minutes or until sauce is thickened. Serve hot.
 
 
-12. Garlic Butter Shrimp
+L.) Garlic Butter Shrimp
 
 YIELD: 4 SERVINGS
 PREP TIME: 10 MINUTES
@@ -335,7 +335,7 @@ Cooking Procedures :
 4.	Stir in shrimp and gently toss to combine.
 5.	Serve immediately, garnished with parsley leaves, if desired.
 
-13. Spanish Meatball & Butter Bean Stew
+M.) Spanish Meatball & Butter Bean Stew
 PREP: 15 MINS
 COOK: 35 MINS
 
@@ -360,7 +360,7 @@ Cooking Procedures:
 1. Season the pork, working the seasoning in with your hands, then shape into small meatballs. Heat the oil in a large pan, add the meatballs and cook for 5 mins, until golden brown all over. Push to one side of the pan and add the onion and peppers. Cook for a further 5 mins, stirring now and then, until the veg has softened, then stir in the garlic and paprika. Stir everything around in the pan for 1 min, then add the tomatoes. Cover with a lid and simmer for 10 mins.
 2. Uncover, stir in the beans, the sugar and some seasoning, then simmer for a further 10 mins, uncovered. Just before serving, stir in the parsley. Serve with crusty bread for dunking, if you like.
 
-14. Ham & Cheese Croquetas
+N.) Ham & Cheese Croquetas
 
 PREP: 20 MINS
 COOK: 1 HR, 25 MINS
@@ -400,7 +400,7 @@ Cooking Procedures:
 4. Meanwhile, make the tomato chilli jam. Put all the ingredients in a large saucepan and bring to a gentle simmer. Cover loosely with a lit and cook for 50 mins - 1 hr, stirring occasionally, until thick and glossy. Leave to cool before serving.
 5.Fill a large saucepan one-third full with the sunflower oil and heat to 180C (or heat the oil in an electric deep-fat fryer). Do not overheat and do not leave hot oil unattended. Using a metal slotted spoon, lower 6 croquets into the oil and cook for 1.5 mins or until golden brown. Transfer to a baking tray lined with kitchen paper to absorb excess oil, and continue cooking the rest. Serve with the chilli jam for dipping.
 
-15. Sweet and Sour Chicken
+O.) Sweet and Sour Chicken
 
 Ingedients:
 
